@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Nobongoz
 - 👀 I’m interested in the collapse of society
 - 🌱 I’m currently learning the chemical formulas of printer paper
-- 💞️ I’m looking to collaborate on my mental health
+- 💞️ I’m looking to collaborate on building a device
 - 📫 How to reach me: Discord at Nobongo#2727
 
 <!---
